@@ -1,6 +1,6 @@
 # tuna_melt
 
-This is all about my love of and for the tuna melt!
+This is all about my love of and for the tuna melt! One of the best things in the world!
 
 ![tuna-melt-081-1550261085](https://user-images.githubusercontent.com/72588367/220449482-a09d0ff4-dd7c-40c7-ba50-3e16d58e8ac8.jpg)
 
